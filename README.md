@@ -1,2 +1,1 @@
-# 6Periodo
-6º Periodo
+# 6º Periodo
